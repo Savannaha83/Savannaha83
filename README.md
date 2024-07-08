@@ -1,4 +1,4 @@
-[GoogleCybersecurityTimeline_Vertical_.pdf](https://github.com/user-Shendricks26@gmail.com
+[GoogleCybersecurityTimeline_.pdf](https://github.com/user-Shendricks26@gmail.com
 attachments/files/16058127/GoogleCybersecurityTimeline.pdf)
 - 👋 Hi, I’m @Savannaha83
 - 👀 I’m interested in ...
