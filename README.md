@@ -1,5 +1,5 @@
-[GoogleCybersecurityTimeline_Vertical_RGB.pdf](https://github.com/user-Shendricks26@gmail.com
-attachments/files/16058127/GoogleCybersecurityTimeline_Vertical_RGB.pdf)
+[GoogleCybersecurityTimeline_Vertical_.pdf](https://github.com/user-Shendricks26@gmail.com
+attachments/files/16058127/GoogleCybersecurityTimeline.pdf)
 - 👋 Hi, I’m @Savannaha83
 - 👀 I’m interested in ...
 - 🌱 I’m currently learning ...
@@ -9,7 +9,7 @@ attachments/files/16058127/GoogleCybersecurityTimeline_Vertical_RGB.pdf)
 - ⚡ Fun fact: ...
 
 <!---
-Savannaha83/Savannaha83 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+Savannaha83/Savannaha83 is a ✨ special ✨ repository because its `README.Shendricks26@gmail.com` (this file) appears on your GitHub profile.
 You can click the Preview link to take a look at your changes.
 
 --->
